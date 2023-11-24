@@ -4,4 +4,4 @@
 Emerse yourself in a world of freedom
 
 # Join our Telegram Channel
-[@TelekopyeAI](https://pages.github.com/)
+[@TelekopyeAI](https://t.me/telekopyeai)
